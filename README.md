@@ -1,6 +1,6 @@
 # chatGPT注册流程，国内怎么玩chatGPT
 
-最新地址：[https://tz.059950.xyz](https://tz.059950.xyz)
+最新地址：[https://t.192291.xyz](https://t.192291.xyz)
 
 ## 注册chatGPT准备工作
 
